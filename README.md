@@ -6,7 +6,7 @@
 
 <br>
 <span style="font-family: Georgia, serif;">
-<span style="color:#477FC5">🎭 . Shadow Milk . Ame ﹕he  they</span>
+<span style="color:#477FC5">🎭 . Shadow Milk ﹕he  they</span>
 <br>
 <span style="color:#477FC5">9teen  ⋮ ⌗ ┆ seasian</span>
 <br>
